@@ -7,3 +7,5 @@
   1. **Use your time in breakout rooms efficiently**. My partner and I often didn't finish the assignment because we spent the beginning chatting and getting to know each other. Perhaps it would be more helpful to connect outside of class and maximize time to develop questions during breakout rooms.
 
   2. **A new strategy moving forward is to read, take notes, and try to complete the lesson and homework if possible before class.** During Session 2 I found myself confused and trying to catch up the whole time, rather than spending that time in class as I did with Session 1 - following along, asking questions, and absorbing the lesson. What we went over in Session 2 only started to make sense as soon as I started the homework.
+#17. Add at least one shoutout to someone who has helped you, supported you, or just been a positive presence in the last two weeks!
+  Shoutout to Chelsea at Turing for being so helpful in my enrollment and leaving such a great first impression of Turing from the beginning. 🙏🏼
