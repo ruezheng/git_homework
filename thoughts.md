@@ -1,0 +1,3 @@
+1. During Session 2 I found myself confused and trying to catch up the whole time, rather than spending that time in class as I did with Session 1 - following along, asking questions, and absorbing the lesson. What we went over in Session 2 only started to make sense as soon as I started the homework. **My takeaway from the first 2 sessions of Mod 0 is to read, take notes, and try to complete the lesson and homework if possible before class.**
+
+2. Another takeaway is to **Use your time in breakout rooms efficiently**. My partner and I often didn't finish the assignment because we spent the beginning chatting and getting to know each other. Perhaps it would be more helpful to connect outside of class.
